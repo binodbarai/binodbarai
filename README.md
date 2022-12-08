@@ -1,3 +1,4 @@
+- hola baby, skriiiiiiiiii
 - 👋 Hi, I’m @binodbarai
 - 👀 I’m interested in codig,UI\UX design,web development.
 - 🌱 I’m currently learning basic C programming and photoshop.
